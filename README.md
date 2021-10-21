@@ -1,1 +1,1 @@
-# FOSS_GitHub_Demo_Th
+# FOSS GitHub Demo Thursday
